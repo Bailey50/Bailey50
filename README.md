@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bailey50
-- 👀 I’m interested in trying to figure out more about coding and the world of It that still baffles me.
+- 👀 I’m interested in trying to figure out more about coding and the world of IT that still baffles me.
 - 🌱 I’m currently learning more about AI
 - 💞️ I’m looking to collaborate on educational projects
 - 📫 How to reach me b.bailey@stpirans.co.uk
